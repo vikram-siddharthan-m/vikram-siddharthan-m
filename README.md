@@ -8,6 +8,7 @@ MBA candidate at NIT Trichy building B2B marketing systems across GTM, growth an
 - CRM and Funnel Optimisation
 - Campaign Localisation
 - Marketing Operations
+- Human Psychology
 
 ## Tools
 Google Ads, GA4, CRM, Canva, Adobe Photoshop, Adobe Premiere Pro
