@@ -1,6 +1,6 @@
 # Vikram Siddharthan M.
 
-MBA candidate at NIT Trichy building B2B marketing systems across GTM, growth analytics, CRM workflows, campaign execution, and AI-first marketing.
+MBA candidate at NIT Trichy building B2B marketing systems across GTM, growth analytics, CRM workflows, campaign execution, human psychology drivern marketing and AI-first marketing.
 
 ## Focus Areas
 - Product Marketing
