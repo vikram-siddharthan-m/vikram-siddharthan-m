@@ -10,7 +10,7 @@ MBA candidate at NIT Trichy building B2B marketing systems across GTM, growth an
 - Marketing Operations
 
 ## Tools
-Google Ads, GA4, HubSpot CRM, UTM Tracking, Canva, Adobe Photoshop, Adobe Premiere Pro
+Google Ads, GA4, CRM, Canva, Adobe Photoshop, Adobe Premiere Pro
 
 ## Selected Work
 - NIMCET 2026 Digital Marketing Campaign
