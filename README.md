@@ -16,6 +16,7 @@ Google Ads, GA4, HubSpot CRM, UTM Tracking, Canva, Adobe Photoshop, Adobe Premie
 - NIMCET 2026 Digital Marketing Campaign
 - Skilled Sapiens Product Marketing GTM
 - Skilled Sapiens Sales and Marketing Ops
+- Voice AI Growth Casebook
 
 ## Links
 - LinkedIn: https://www.linkedin.com/in/vikramsiddharthanm/
